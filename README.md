@@ -1,4 +1,11 @@
-## Hi there 👋
+## ooii 🫀🌇
+me chamo elisa
+
+![](https://media.giphy.com/media/rmq2JpczaXsL2TLqsd/giphy.gif?cid=790b76117l0slb32bo8vaiy7cl45qhvbngt9l0mk41x226lc&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+
+
+
+
 
 <!--
 **elisafurtuna/elisafurtuna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
