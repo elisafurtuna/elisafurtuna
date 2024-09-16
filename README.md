@@ -1,5 +1,7 @@
 ## ooii 🫀🌇
 me chamo elisa
+estou no 1 ano do ens. medio
+elisa.furtuna@escola.pr.gov.br
 
 ![](https://media.giphy.com/media/rmq2JpczaXsL2TLqsd/giphy.gif?cid=790b76117l0slb32bo8vaiy7cl45qhvbngt9l0mk41x226lc&ep=v1_gifs_search&rid=giphy.gif&ct=g)
 
